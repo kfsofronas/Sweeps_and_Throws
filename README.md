@@ -1,3 +1,3 @@
 # Sweeps_and_Throws
 
-[Just click this link to the itch.io page](https://itch.https://sofronas.itch.io/sweeps-and-throws)
+[Just click this link to the itch.io page](https://sofronas.itch.io/sweeps-and-throws)
