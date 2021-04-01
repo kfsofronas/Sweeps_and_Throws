@@ -1,2 +1,3 @@
 # Sweeps_and_Throws
-Unity video game I made in 8 hours
+
+[Just click this link to the itch.io page](itch.https://sofronas.itch.io/sweeps-and-throws)
